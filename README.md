@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 -->
 
 
-# Hello there, my name is Pauline Xavier Estira 👋
+# Hello there! I'm Pauline Estira 👋
 
 ## About Me
 
