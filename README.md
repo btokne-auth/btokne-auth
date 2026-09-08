@@ -28,16 +28,7 @@ At the core of it all, I live by being **committed, passionate, and authentic**.
 
 - 🎯 **Discipline** — I don't just imagine things, I deliver them, turning concepts and ideas into action
 - 🌱 **Initiative** — I strive to be someone who initiates rather than waits
-- 🤝 **Community** — active in volunteering, leading teams, and serving as an associate on council
-- 🚀 **Growth mindset** — I aim to be among the best in academics and in life, driven to build, lead, and inspire
 - 💬 **Motto**: *"Do it scared"* — not taking the chance is what's scary
-
-<!--## Currently
-
-- 🎮 Grinding toward my next goal (in games and in life)
-- 🎸 Playing guitar in my downtime
-- 📸 Learning photography and video editing hands-on
-- 🌍 Building and growing communities -->
 
 ## Let's Connect
 
